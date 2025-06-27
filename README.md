@@ -20,7 +20,7 @@ In just 3 hours, this course unlocks the secrets to turning your phone into a ph
 
 Imagine knowing the ins and outs of taking jaw-dropping pictures using just your trusty smartphone! But wait, there's more! It’s not just about learning; it’s about doing. 
 
-You’ll also dive into fun challenges that bring tactical [photography](https://en.wikipedia.org/wiki/Photography#:~:text=Photography is the art, application,material such as photographic film.) techniques to life, making the learning process a thrilling ride.
+You’ll also dive into fun challenges that bring tactical [photography](https://en.wikipedia.org/wiki/Photography) techniques to life, making the learning process a thrilling ride.
 
 Ever wondered how those stunning photos happen effortlessly? This course unveils the wizardry behind it all. 
 
